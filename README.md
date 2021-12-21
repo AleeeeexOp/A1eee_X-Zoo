@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @XxWGFAlexxX
 - 👀 I’m interested in Roblox Studio for scripts
-- 🌱 I’m currently learning Comunity  Discord
+- 🌱 I’m currently learning Discord 
 - 💞️ I’m looking to collaborate on Discord 
 
 <!---
